@@ -1,2 +1,2 @@
 # TUBES_IMPAL
-apa yaa
+semangat lah yaa
